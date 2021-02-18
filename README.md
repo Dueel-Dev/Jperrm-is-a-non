@@ -1,5 +1,5 @@
 # TheUltimateDuel.github.io 
-jperm is non
+jperm is non and shouldnt exist
 https://horsescary.com
 https://gloriouscraft.github.io
 https://neyoa.me
